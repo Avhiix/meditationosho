@@ -1,0 +1,2 @@
+# meditationosho
+osho meditation centre
